@@ -1,1 +1,1 @@
-# Meetups-Rladies
+# Rladies
